@@ -30,3 +30,7 @@ https://github.com/Petchi284/e-com/assets/145541034/c8767a54-c1d3-4599-91ac-2e6c
 
 
 https://github.com/Petchi284/e-com/assets/145541034/4d0cbfff-7e5c-40f8-a7ab-905cbf951f73
+
+
+
+https://github.com/Petchi284/e-com/assets/145541034/d887d7e2-d1c8-4bdb-b214-69f11f9980f7
