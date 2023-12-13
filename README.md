@@ -1,5 +1,8 @@
 OverView of e-com project.
 
+https://github.com/Petchi284/e-com/assets/145541034/22c7d773-8160-4c5b-9310-3786efff5b44
+
+
 
 https://github.com/Petchi284/e-com/assets/145541034/9355f89c-e65a-43c4-905b-dd6dffee4bdf
 
